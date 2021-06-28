@@ -1,5 +1,5 @@
 (Under Construction)
 
 ## Support or Contact
-### Having trouble with Bloxx IOS or Android App? 
-Please Contact ger4ik777@gmail.com
+### Having trouble with Bloxx or MathMind IOS or Android App? 
+Please Contact geragames93@gmail.com
